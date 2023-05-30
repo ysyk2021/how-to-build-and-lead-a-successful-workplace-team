@@ -10,4 +10,4 @@ Throughout this book, we will draw on real-world examples and case studies to il
 
 Whether you are a business leader, a manager, or an employee looking to build stronger relationships in the workplace, this book will provide valuable insights and actionable advice for developing successful workplace teams. So let's dive in and explore the key principles and strategies for building and leading successful teams that harness individual strengths and achieve common goals!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
