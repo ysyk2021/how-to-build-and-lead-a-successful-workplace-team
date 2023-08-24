@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [The importance of building and leading successful workplace teams](chapter-1-1.md)
 - [Chapter 2: Understanding Effective Team Building](chapter-2.md)
   - [Definition of effective team building](chapter-2-1.md)
