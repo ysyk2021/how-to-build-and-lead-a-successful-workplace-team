@@ -1,5 +1,3 @@
-Techniques for incorporating effective team building into company policies and practices
-==============================================================================================================================================================================
 
 Incorporating effective team building into company policies and practices is essential for building a successful workplace team. In this chapter, we will discuss techniques for incorporating effective team building into company policies and practices.
 

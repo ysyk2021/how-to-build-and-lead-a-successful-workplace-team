@@ -1,5 +1,3 @@
-Chapter 7: Developing Effective Teamwork Skills
-===============================================
 
 Developing effective teamwork skills is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will provide an overview of effective teamwork skills in effective team building and strategies for developing them.
 

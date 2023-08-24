@@ -1,5 +1,3 @@
-Overview of Effective Teamwork Skills in Effective Team Building
-=================================================================================================================
 
 Effective teamwork skills are essential for building and leading successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will provide an overview of what it means to develop effective teamwork skills and why these skills are so important.
 

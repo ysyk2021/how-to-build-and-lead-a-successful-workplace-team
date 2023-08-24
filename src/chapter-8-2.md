@@ -1,5 +1,3 @@
-Strategies for Leading Successful Workplace Teams
-================================================================================================
 
 Effective team leadership is essential for building and leading successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will discuss effective strategies for leading successful workplace teams.
 

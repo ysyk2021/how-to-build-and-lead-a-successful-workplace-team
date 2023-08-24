@@ -1,5 +1,3 @@
-Chapter 10: Overcoming Obstacles to Effective Team Building
-===========================================================
 
 Effective team building is essential for achieving organizational success, but it can be challenging to build and lead successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will discuss common obstacles to effective team building and strategies for overcoming them.
 

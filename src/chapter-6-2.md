@@ -1,5 +1,3 @@
-Techniques for Setting Common Goals and Objectives
-==================================================================================================
 
 Setting common goals and objectives is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will discuss techniques for setting common goals and objectives.
 

@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-======================================================================================================
 
 Effective team building is essential for achieving success in the workplace, but it can sometimes be difficult to overcome obstacles that stand in the way. In this chapter, we will discuss strategies for overcoming obstacles to effective team building.
 

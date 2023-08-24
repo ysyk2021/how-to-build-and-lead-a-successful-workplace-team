@@ -1,5 +1,3 @@
-Strategies for Encouraging Diversity and Inclusion in the Workplace
-===================================================================================================================
 
 Encouraging diversity and inclusion is essential for creating a positive and productive work environment that harnesses individual strengths and achieves common goals. In this chapter, we will discuss strategies for encouraging diversity and inclusion in the workplace.
 

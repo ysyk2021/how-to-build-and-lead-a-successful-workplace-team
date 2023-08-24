@@ -1,5 +1,3 @@
-Encouraging Diversity and Inclusion - Importance of Diversity and Inclusion in Effective Team Building
-=================================================================================================================
 
 Diversity and inclusion are critical components of effective team building. In this chapter, we will explore the importance of diversity and inclusion in successful team building.
 

@@ -1,5 +1,3 @@
-Chapter 5: Encouraging Diversity and Inclusion
-==============================================
 
 Encouraging diversity and inclusion is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will discuss the importance of diversity and inclusion in effective team building and strategies for encouraging diversity and inclusion in the workplace.
 

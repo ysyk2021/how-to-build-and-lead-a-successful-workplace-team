@@ -1,5 +1,3 @@
-Importance of identifying individual strengths and weaknesses in team building
-==========================================================================================================================================
 
 Identifying individual strengths and weaknesses is essential for building a successful workplace team that harnesses individual strengths and achieves common goals. In this chapter, we will discuss the importance of identifying individual strengths and weaknesses in team building.
 

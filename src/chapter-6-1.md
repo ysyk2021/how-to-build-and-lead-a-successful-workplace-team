@@ -1,5 +1,3 @@
-Importance of Setting Common Goals and Objectives in Effective Team Building
-============================================================================================================================
 
 Setting common goals and objectives is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will discuss the importance of setting common goals and objectives in effective team building.
 

@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Tracking progress and celebrating successes are essential strategies for implementing lasting change in building and leading successful workplace teams. In this chapter, we will discuss effective strategies for tracking progress and celebrating successes.
 

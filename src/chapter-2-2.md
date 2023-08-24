@@ -1,5 +1,3 @@
-Benefits of effective team building for employees and the organization
-========================================================================================================================
 
 Understanding effective team building is essential for building a successful workplace team. In this chapter, we will discuss the benefits of effective team building for employees and the organization.
 

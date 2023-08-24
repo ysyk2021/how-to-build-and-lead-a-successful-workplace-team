@@ -1,5 +1,3 @@
-Chapter 8: Leading Successful Workplace Teams
-=============================================
 
 Effective team leadership is critical for building and leading successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will provide an overview of effective team leadership and strategies for leading successful workplace teams.
 

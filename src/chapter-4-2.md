@@ -1,5 +1,3 @@
-Strategies for Building Trust and Communication Among Team Members
-===============================================================================================================
 
 Building trust and communication are essential components of effective team building. In this chapter, we will discuss effective strategies for building trust and communication among team members.
 

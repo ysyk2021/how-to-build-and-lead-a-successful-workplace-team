@@ -1,5 +1,3 @@
-Overview of Effective Team Leadership
-====================================================================================
 
 Effective team leadership is essential for building and leading successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will provide an overview of effective team leadership.
 

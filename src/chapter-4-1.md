@@ -1,5 +1,3 @@
-Overview of Building Trust and Communication in Effective Team Building
-====================================================================================================================
 
 Building trust and communication are two essential components of effective team building. In this chapter, we will provide an overview of what it means to build trust and communication among team members and why these skills are so important.
 

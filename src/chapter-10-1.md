@@ -1,5 +1,3 @@
-Common Obstacles to Effective Team Building
-========================================================================================================
 
 Effective team building requires ongoing effort and investment, but there are many obstacles that can prevent teams from achieving success. In this chapter, we will discuss some of the common obstacles to effective team building and strategies for overcoming them.
 

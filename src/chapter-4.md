@@ -1,5 +1,3 @@
-Chapter 4: Building Trust and Communication
-===========================================
 
 Building trust and communication is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will provide an overview of building trust and communication in effective team building and strategies for doing so.
 

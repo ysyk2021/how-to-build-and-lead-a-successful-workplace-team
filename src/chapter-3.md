@@ -1,5 +1,3 @@
-Chapter 3: Identifying Individual Strengths and Weaknesses
-==========================================================
 
 Identifying individual strengths and weaknesses is essential for effective team building that harnesses individual strengths and achieves common goals. In this chapter, we will discuss the importance of identifying individual strengths and weaknesses in team building and techniques for doing so.
 

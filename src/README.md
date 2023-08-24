@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced and complex business environment, building and leading a successful workplace team is essential for achieving common goals and driving organizational success. However, creating a high-performing team that harnesses individual strengths and achieves common goals is easier said than done.
 

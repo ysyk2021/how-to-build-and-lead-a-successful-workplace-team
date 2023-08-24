@@ -1,5 +1,3 @@
-Creating a Roadmap for Building and Leading Successful Workplace Teams that Harness Individual Strengths and Achieve Common Goals
-===========================================================================================================================================================================================
 
 Building and leading successful workplace teams that harness individual strengths and achieve common goals is an ongoing process that requires dedication and investment. In this chapter, we will discuss implementation strategies for lasting change and creating a roadmap for building and leading successful workplace teams.
 

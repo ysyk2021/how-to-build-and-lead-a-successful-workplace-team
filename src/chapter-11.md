@@ -1,5 +1,3 @@
-Chapter 11: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change is essential for building and leading successful workplace teams that harness individual strengths and achieve common goals. In this chapter, we will discuss implementation strategies for creating lasting change.
 
