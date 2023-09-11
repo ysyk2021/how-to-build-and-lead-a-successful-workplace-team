@@ -1,5 +1,4 @@
-Chapter 2: Benefits of Effective Team Building for Employees and the Organization
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective team building not only contributes to the success of a workplace team but also brings numerous benefits to both the individual employees and the organization as a whole. In this chapter, we will explore the various advantages of effective team building and how they positively impact the growth, productivity, and overall success of individuals and organizations.
 

@@ -1,5 +1,4 @@
-Chapter 1: Definition of Effective Team Building
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective team building is the process of creating and nurturing a cohesive group of individuals who work collaboratively towards a common goal, leveraging their individual strengths to achieve outstanding results. It involves carefully selecting team members, establishing clear objectives, fostering open communication, and providing the necessary support and resources for success. In this chapter, we will delve into the key elements that define effective team building and explore how it contributes to the overall success of a workplace team.
 

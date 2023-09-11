@@ -1,5 +1,4 @@
-Chapter 4: Importance of Diversity and Inclusion in Effective Team Building
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Diversity and inclusion are critical factors that contribute to successful team building in the workplace. Recognizing and embracing the value of diversity, as well as fostering an inclusive environment, can lead to a team that harnesses individual strengths and achieves common goals. In this chapter, we will explore the importance of diversity and inclusion in effective team building.
 

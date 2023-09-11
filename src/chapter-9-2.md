@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Incorporating Effective Team Building into Company Policies and Practices
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating effective team building into company policies and practices requires intentional strategies and techniques. By implementing specific approaches, organizations can foster a collaborative work environment, harness individual strengths, and achieve common goals. In this chapter, we will explore various techniques for incorporating effective team building into company policies and practices.
 

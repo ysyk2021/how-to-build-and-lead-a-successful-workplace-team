@@ -1,5 +1,4 @@
-Chapter 9: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Tracking progress and celebrating successes are crucial aspects of building and leading a successful workplace team. By implementing effective strategies for monitoring performance and acknowledging achievements, leaders can motivate their team members, reinforce positive behaviors, and maintain momentum towards achieving common goals. In this chapter, we will explore techniques for tracking progress and celebrating successes within a workplace team.
 

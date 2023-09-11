@@ -1,5 +1,4 @@
-Chapter 3: Overview of Effective Teamwork Skills in Effective Team Building
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective teamwork skills are essential for building and leading a successful workplace team that harnesses the individual strengths of its members and achieves common goals. In this chapter, we will provide an overview of the key teamwork skills that contribute to effective team building. These skills encompass communication, collaboration, adaptability, accountability, and conflict resolution.
 

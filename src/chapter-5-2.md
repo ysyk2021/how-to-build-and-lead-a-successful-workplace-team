@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Encouraging Diversity and Inclusion in the Workplace
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Diversity and inclusion are key drivers of innovation, creativity, and success in the workplace. Embracing a diverse range of backgrounds, perspectives, and experiences fosters an inclusive environment that allows individuals to thrive and contribute their unique strengths. In this chapter, we will explore strategies for encouraging diversity and inclusion in the workplace, enabling leaders to build and lead successful teams.
 

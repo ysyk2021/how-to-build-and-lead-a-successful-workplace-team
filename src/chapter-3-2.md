@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Identifying Individual Strengths and Weaknesses
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To build and lead a successful workplace team, it is essential to identify and harness the individual strengths and weaknesses of team members. Understanding their unique abilities and areas for development allows leaders to assign tasks effectively, foster growth, and achieve common goals. In this chapter, we will explore techniques for identifying individual strengths and weaknesses.
 

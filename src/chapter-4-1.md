@@ -1,5 +1,4 @@
-Chapter 8: Overview of Building Trust and Communication in Effective Team Building
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building trust and effective communication within a workplace team. Trust and open communication lay the foundation for successful team building, fostering collaboration, cooperation, and productivity. By understanding and implementing strategies to build trust and improve communication, leaders can create a supportive and high-performing team environment.
 

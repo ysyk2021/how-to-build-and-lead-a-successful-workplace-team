@@ -1,5 +1,4 @@
-Chapter 6: Common Obstacles to Effective Team Building
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building and leading a successful workplace team that harnesses individual strengths and achieves common goals is not without its challenges. There are common obstacles that can hinder the team-building process and impede progress. In this chapter, we will explore these obstacles and discuss strategies to overcome them.
 

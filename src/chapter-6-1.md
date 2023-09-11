@@ -1,5 +1,4 @@
-Chapter 9: Importance of Setting Common Goals and Objectives in Effective Team Building
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of setting common goals and objectives in building and leading a successful workplace team. Establishing clear goals and shared objectives is essential for creating a sense of purpose, aligning team members, and driving them towards collective success. By understanding the importance of setting common goals, leaders can foster a collaborative and high-performing team environment.
 

@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Setting Common Goals and Objectives
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for setting common goals and objectives within a workplace team. Creating clear and aligned goals is essential for fostering collaboration, harnessing individual strengths, and achieving collective success. By implementing these techniques, you can ensure that your team is working towards a shared vision and maximizing their potential.
 
